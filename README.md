@@ -1,1 +1,1 @@
-# That's all me colored people !
+# That's all me !
